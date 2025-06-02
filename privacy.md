@@ -34,8 +34,8 @@ No data is shared with any third party except **TikTok**, which processes the up
 ## 4. Your rights
 
 * You can **revoke** this App’s access at any time from your TikTok settings.  
-* You may request deletion of any stored data by emailing **moez.abbassi1@gmail.com**.
+* You may request deletion of any stored data by emailing **moez.abbessi1@gmail.com**.
 
 ---
 
-_If you have questions about this policy, please contact **moez.abbassi1@gmail.com**._
+_If you have questions about this policy, please contact **moez.abbessi1@gmail.com**._
